@@ -2,5 +2,5 @@
 Group Members:
 Anqi Liao annqi.liao@gmail.com 
 Dan Kenney kenneyd42@gmail.com
-Ingrid
-Liam 
+Ingrid Mayboehm ingridm36@hotmail.com
+Liam Duffy duffman437@gmail.com
